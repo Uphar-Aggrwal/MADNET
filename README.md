@@ -6,7 +6,7 @@
 
 ## The Story That Started It
 
-₹800. A café. 4.6 stars on Google.
+₹2,500. A café. 4.6 stars on Google.
 
 The chai tasted like warm disappointment. The ambiance was nothing like the photos. The reviews — paid.
 
